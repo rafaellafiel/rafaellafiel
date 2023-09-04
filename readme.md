@@ -1,6 +1,6 @@
 # Olá, me chamo Rafaella Fiel!
 
-Trabalho com Monitormento e Avaliação de projetos sociais, pesquisadora em Gênero e Migranções e amo assistir séries enquanto como uma pizza marguerita.
+Trabalho com Monitoramento e Avaliação de projetos sociais, pesquisadora em Gênero e Migranções e amo assistir séries enquanto como uma pizza marguerita.
 
 Trabalho na organização Plan International Brasil
 
