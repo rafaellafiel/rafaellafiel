@@ -2,8 +2,6 @@
 
 Trabalho com Monitoramento e Avaliação de projetos sociais, pesquisadora em Gênero e Migranções e amo assistir séries enquanto como uma pizza marguerita.
 
-Trabalho na organização Plan International Brasil
-
 Formada em Relações Internacionais, estou estudando Power Bi e Python e análise de dados
 
 
